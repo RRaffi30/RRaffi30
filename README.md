@@ -5,5 +5,5 @@
 - 👯 I’m looking to collaborate on NOTHING
 - 🤔 I’m looking for help with NOTHING
 - 💬 Ask me about NOTHING
-- 📫 How to reach me: DON't
+- 📫 How to reach me: DON'T
 - ⚡ Fun fact: "FUN THING ARE FUN"
